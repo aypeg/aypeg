@@ -1,7 +1,9 @@
 <div align="center">
 
 <sub> RENTRY COMING SOON!!!! MAYBE!!!!!!!!
+<div align="center">
 <sub> [ATABOOK](https://jaypegger.atabook.org/)
+<div align="center">
 <sub> [LAST.FM](last.fm/user/plush-addict)
 
 <div align="center">
