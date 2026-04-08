@@ -1,11 +1,16 @@
 <div align="center">
 
 <sub> RENTRY COMING SOON!!!! MAYBE!!!!!!!!
+
 <div align="center">
+  
 <sub> [ATABOOK](https://jaypegger.atabook.org/)
+
 <div align="center">
+
 <sub> [LAST.FM](last.fm/user/plush-addict)
 
+<div align="center">
 <div align="center">
 
 ![](https://komarev.com/ghpvc/?username=spilledgutss&color=660000&label=PALS!!!!)           
