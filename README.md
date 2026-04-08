@@ -1,6 +1,8 @@
 <div align="center">
 
-<sub> Remaking rentry + guns.lol.  [Atabook](https://jaypegger.atabook.org/)
+<sub> RENTRY COMING SOON!!!! MAYBE!!!!!!!!
+<sub> [ATABOOK](https://jaypegger.atabook.org/)
+<sub> [LAST.FM](last.fm/user/plush-addict)
 
 <div align="center">
 
