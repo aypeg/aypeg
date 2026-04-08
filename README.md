@@ -1,6 +1,6 @@
 <div align="center">
 
-<sub> Remaking rentry + guns.lol.  [Atabook](https://stayfrosty.atabook.org/)
+<sub> Remaking rentry + guns.lol.  [Atabook](https://jaypegger.atabook.org/)
 
 <div align="center">
 
