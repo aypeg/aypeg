@@ -8,7 +8,7 @@
 
 <div align="center">
 
-<sub> [LAST.FM](last.fm/user/plush-addict)
+<sub> [LAST.FM](https://last.fm/user/plush-addict)
 
 <div align="center">
 <div align="center">
